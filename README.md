@@ -1,6 +1,6 @@
 # Abubakar Rabiu Maihadisi
 
-**R.Engr. (COREN) Â· AMICDFA Â· B.Eng. Computer Engineering**  
+**Engr. (COREN)  AMICDFA  B.Eng. Computer Engineering**  
 ðŸ“ Kaduna, Nigeria Â· ðŸ“§ maihadisiabubakar@gmail.com
 
 ---
